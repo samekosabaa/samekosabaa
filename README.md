@@ -6,3 +6,5 @@
 　　𓎟𓎟     gigi kamioshi     ⸝⸝ㅤ      ˎˊ˗
   
   ![saba](saba-sameko-saba.gif)
+
+  pronouns atabook rentry
